@@ -1,0 +1,1 @@
+# tal-succotash-resistente
